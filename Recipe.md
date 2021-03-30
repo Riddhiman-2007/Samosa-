@@ -1,0 +1,1 @@
+boil the oil , boil the potato too... ,then mix water with maida and make a dough , then put the boiled potato in the dough and make a traingular shape like the samosa has , fry them in oil .... The delicious samosa is now ready
